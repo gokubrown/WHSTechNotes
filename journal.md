@@ -16,3 +16,5 @@ it was created to make sure no one had to be bullied and harass so they made it 
 I chose by looking closey and see how did the teams do last time and see the rhight option. Kinda but its always someting nobody exepects. It imporve by a little but it does help for some data with pepole not watching the sport. we dont know we would have to make a program to see. well the program to help that comes to mind is phyton.
 # March 30, 2026
 it upseting for some cause some people are betting on the game to make money. Because computer dont have the same mind prosce as human will. I would struggle with the aount of data and many chanegs will be over welming.
+# April 09, 2026
+The plan will be to tell them about how there are many differnet humans out that with different triates and persolnality. than give the ai examples of what that is and tell what kind of humans to look out for.There are other humans out there that can protect other people like firefighters and cops and doctors can save lives with medicne but keep human inside a house that will be trap and recive no sunlight which they need.
