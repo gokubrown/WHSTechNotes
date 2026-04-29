@@ -15,6 +15,13 @@ it was created to make sure no one had to be bullied and harass so they made it 
 # March 23, 2026
 I chose by looking closey and see how did the teams do last time and see the rhight option. Kinda but its always someting nobody exepects. It imporve by a little but it does help for some data with pepole not watching the sport. we dont know we would have to make a program to see. well the program to help that comes to mind is phyton.
 # March 30, 2026
-it upseting for some cause some people are betting on the game to make money. Because computer dont have the same mind prosce as human will. I would struggle with the aount of data and many chanegs will be over welming.
+it upseting for some cause some people are betting on the game to make money. Because computer dont have the same mind prosce
+as human will. I would struggle with the aount of data and many chanegs will be over welming.
 # April 09, 2026
 The plan will be to tell them about how there are many differnet humans out that with different triates and persolnality. than give the ai examples of what that is and tell what kind of humans to look out for.There are other humans out there that can protect other people like firefighters and cops and doctors can save lives with medicne but keep human inside a house that will be trap and recive no sunlight which they need.
+# April 13, 2026 
+Space Launch System's (SLS) core stage and RS-25 engines. the real changlles is comunaction cause we need comunaction for being able to talk back to home base and tell everything they need to say.
+# April 20, 2026
+It does matter if music is made by human cause human can add pasion in there music ai will just copy lyicys and voices and just wont do anything speical with it. Ai can influfence people cause its ai there noting to tell people with human it can have a story with the music. yes there should be a limit on how ai use music cause ai just doesnt cut it.
+# April 27, 2026
+technolgy i used it to play games with my frindes and commution on my phone cause it helps a lot with talking to them if you need to ask them something.
